@@ -1,0 +1,2 @@
+# Pasal 72
+Dengan belakunya Peraturan Daerah ini maka Peraturan Daerah Propinsi Daerah Istimewa Yogyakarta Nomor 12 Tahun 1996 tentang Kedudukan Keuangan Ketua, Wakil Ketua dan Anggota Dewan Perwakilan Rakyat Daerah Propinsi Daerah Istimewa Yogyakarta dan Peraturan Daerah Propinsi Daerah Istimewa Yogyakarta Nomor 6 Tahun 2000 tentang Pokok-pokok Pengelolaan Keuangan Daerah dinyatakan tidak berlaku.
