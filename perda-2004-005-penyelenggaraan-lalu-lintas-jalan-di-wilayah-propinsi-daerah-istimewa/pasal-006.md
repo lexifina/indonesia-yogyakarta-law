@@ -1,0 +1,3 @@
+# Pasal 6
+(1) Setiap perencanaan, pembangunan dan pemeliharaan prasarana lalu lintas jalan sebagaimana dimaksud Pasal 5 huruf a dilaksanakan sesuai dengan peraturan Perundang-undangan yang berlaku (2) Perencanaan, pengadaan, pemasangan dan pemeliharaan rambu, marka jalan, APILL , alat pengendali, dan pengamanan pemakai jalan serta alat pengawasan dan pengamanan jalan sebagaimana dimaksud Pasal 5 huruf b dilaksanakan oleh Dinas.
+(3) Ketentuan mengenai bentuk, ukuran, bahan, warna, tatacara penempatan, pemasangan, pencabutan. pemindahan atau penghapusan rambu, marka jalan, APILL, alat pengendali serta alat pengawasan dan pengaman pemakai jalan sebagaimana dimaksud ayat (2) disesuaikan dengan peraturan perundang-undangan yang berlaku.
