@@ -1,0 +1,4 @@
+# Pasal 4
+(1) RPJPD memuat visi, misi, dan arah pembangunan Daerah yang mengacu pada RPJP Nasional.
+(2) RPJMD merupakan penjabaran dari visi, misi, dan program Gubernur yang penyusunannya berpedoman pada RPJPD dan memperhatikan RPJM Nasional, memuat arah kebijakan keuangan Daerah, strategi pembangunan Daerah, kebijakan umum, dan program Satuan Kerja Perangkat Daerah, lintas Satuan Kerja Perangkat Daerah, dan program kewilayahan disertai dengan rencana-rencana kerja dalam kerangka regulasi dan kerangka pendanaan yang bersifat indikatif.
+(3) RKPO merupakan penjabaran dari RPJMD dan mengacu pada RKP, memuat rancangan kerangka ekonomi daerah, prioritas pembangunan daerah, rencana kerja, dan penandaannya, baik yang dilaksanakan langsung oleh pemerintah maupun yang ditempuh dengan mendorong partisipasi masyarakat.
