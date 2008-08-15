@@ -1,0 +1,10 @@
+# Pasal 10
+Untuk melaksanakan tugas sebagaimana dimaksud dalam Pasal 9 Asisten Perekonomian dan Pembangunan mempunyai fungsi:
+a. penyusunan program kerja;
+b. pengkoordinasian perumusan kebijakan dan pedoman penyelenggaraan bidang perekonomian, perencanaan pembangunan, statistik, penelitihan dan pengembangan, dekonsentrasi, perhubungan, pekerjaan umum, perumahan, budaya dan pariwisata, pertanian, peternakan, perkebunan, kehutanan, ketahanan pangan dan penyuluhan, pertambangan dan energi, lingkungan hidup, kelautan dan perikanan serta penyuluhan, koperasi dan usaha kecil menengah, penanaman modal, kerjasama, perijinan, perindustrian dan perdagangan, dan badan usaha milik daerah.
+c. pembinaan bidang perekonomian, perencanaan pembangunan, statistik, penelitihan dan pengembangan, dekonsentrasi, perhubungan, pekerjaan umum, perumahan, budaya dan pariwisata, pertanian, peternakan, perkebunan, kehutanan, ketahanan pangan dan penyuluhan. pertambangan dan energi, lingkungan hidup, kelautan dan perikanan serta penyuluhan, koperasi dan usaha kecil menengah, penanaman modal, kerjasama, perijinan, perindustrian dan perdagangan, dan badan usaha milik daerah.
+d. pemantauan dan pngevaluasian bidang perekonomian, perencanaan pembangunan, statistik, penelitihan dan pengembangan, dekonsentrasi, perhubungan, pekerjaan umum, perumahan, budaya dan pariwisata, pertanian, peternakan, perkebunan, kehutanan, ketahanan pangan dan penyuluhan. pertambangan dan energi, lingkungan hidup, kelautan dan perikanan serta penyuluhan, koperasi dan usaha kecil menengah, penanaman modal, kerjasama, perijinan, perindustrian dan perdagangan, dan badan usaha milik daerah.
+e. membantu Sekretaris Daerah dalam perumusan kebijakan penyelenggaraan pemerintahan daerah, pengkoordinasian pelaksanaan dan pemantau serta pengevaluasian pelaksanaan kebijakan penyelenggaraan pemerintahan daerah;
+f. pelaksanaan tugas lain yang diberikan oleh Sekretaris Daerah sesuai dengan fungsi dan tugasnya.
+Paragraf 3
+Asisten Administrasi Umum

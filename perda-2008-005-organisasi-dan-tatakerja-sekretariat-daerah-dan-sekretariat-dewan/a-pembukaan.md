@@ -1,0 +1,21 @@
+# Pembukaan
+PEMERINTAH PROVINSI DAERAH ISTIMEWA YOGYAKARTA PERATURAN DAERAH PROVINSI DAERAH ISTIMEWA YOGYAKARTA NOMOR 5 TAHUN 2008 TENTANG ORGANISASI DAN TATAKERJA SEKRETARIAT DAERAH DAN SEKRETARIAT DEWAN PERWAKILAN RAKYAT DAERAH PROVINSI DAERAH ISTIMEWA YOGYAKARTA
+DENGAN RAHMAT TUHAN YANG MAHA ESA GUBERNUR DAERAH ISTIMEWA YOGYAKARTA,
+Menimbang : a. bahwa Pembentukan dan Organisasi Sekretariat Daerah dan Sekretariat Dewan Perwakilan Rakyat Daerah Provinsi Daerah Istimewa Yogyakarta telah ditetapkan dengan Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 1 Tahun 2004;
+b. bahwa dengan telah ditetapkannya Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 7 Tahun 2007 tentang Urusan Pemerintahan yang menjadi Kewenangan Pemerintah Provinsi Daerah Istimewa Yogyakarta dan Peraturan Pemerintah Nomor 41 Tahun 2007 tentang Organisasi Perangkat Daerah, maka Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 1 Tahun 2004 tentang Pembentukan dan Organisasi Sekretariat Daerah dan Sekretariat Dewan Perwakilan Rakyat Daerah Provinsi Daerah Istimewa Yogyakarta perlu disesuaikan dengan tetap memperhatikan prinsip-prinsip pembentukan perangkat daerah antara lain urusan yang dimiliki, karakteristik, potensi, kebutuhan, kemampuan serta visi dan misi daerah;
+c. bahwa berdasarkan pertimbangan sebagaimana dimaksud dalam huruf a dan b perlu menetapkan Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta tentang Organisasi dan Tatakerja Sekretariat Daerah dan Sekretariat Dewan Perwakilan Rakyat Daerah Provinsi Daerah Istimewa Yogyakarta.
+Mengingat : 1. Undang-Undang Nomor 3 Tahun 1950 tentang Pembentukan Daerah Istimewa Yogyakarta sebagaimana telah diubah beberapa kali terakhir dengan Undang-Undang Nomor 9 Tahun 1955;
+2. Undang-Undang Nomor 8 Tahun 1974 tentang Pokok-pokok Kepegawaian (Lembaran Negara Tahun 1974 Nomor 55, Tambahan Lembaran Negara Nomor 3041) sebagaimana telah diubah dengan Undang-Undang Nomor 43 Tahun 1999 (Lembaran Negara Tahun 1999 Nomor 169, Tambahan Lembaran Negara Republik Indonesia Nomor 3890);
+3. Undang-Undang Nomor 10 Tahun 2004 tentang Pembentukan Peraturan Perundang-Undangan (Lembaran Negara Republik Indonesia Tahun 2004 Nomor 53, Tambahan lembaran Negara Republik Indonesia Nomor 4389);
+4. Undang-Undang Nomor 32 Tahun 2004 tentang Pemerintahan Daerah (Lembaran Negara Republik Indonesia Tahun 2004 Nomor 125, Tambahan Lembaran Negara Nomor 4437) sebagaimana telah diubah beberapa kali terakhir dengan Undang-Undang 12 Tahun 2008 (Lembaran Negara Republik Indonesia Tahun 2008 Nomor 59, Tambahan Lembaran Negara Republik Indonesia Nomor 4844 );
+5. Undang-Undang Nomor 33 Tahun 2004 tentang Perimbangan Keuangan antara Pemerintah Pusat dan Pemerintahan Daerah (Lembaran Negara Republik Indonesia Tahun 2004 Nomor 126, Tambahan Lembaran Negara Republik Indonesia Nomor 4438);
+6. Peraturan Pemerintah Nomor 31 Tahun 1950 tentang Berlakunya Undang-Undang Nomor 2, 3, 10 dan 11 Tahun 1950;
+7. Peraturan Pemerintah Nomor 79 Tahun 2005 tentang Pedoman Pembinaan dan Pengawasan Penyelenggaraan Pemerintahan Daerah (Lembaran Negara Republik Indonesia Tahun 2005 Nomor 165, Tambahan Lembaran Negara Republik Indonesia Nomor 4593);
+8. Peraturan Pemerintah Nomor 38 Tahun 2007 tentang Pembagian Urusan Pemerintahan Antara Pemerintah, Pemerintahan Daerah Provinsi, dan Pemerintahan Daerah Kabupaten/Kota (Lembaran Negara Republik Indonesia Tahun 2007 Nomor 82, Tambahan Lembaran Negara Republik Indonesia Nomor 4737);
+9. Peraturan Pemerintah Nomor 41 Tahun 2007 tentang Organisasi Perangkat Daerah (Lembaran Negara Republik Indonesia Tahun 2007 Nomor 8, Tambahan Lembaran Negara Republik Indonesia Nomor 4741);
+10. Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 7 Tahun 2007 tentang Urusan Pemerintahan Yang Menjadi Kewenangan Provinsi Daerah Istimewa Yogyakarta (Lembaran Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 7 Tahun 2007).
+Dengan Persetujuan Bersama DEWAN PERWAKILAN RAKYAT DAERAH PROVINSI DAERAH ISTIMEWA YOGYAKARTA, dan GUBERNUR DAERAH ISTIMEWA YOGYAKARTA,
+MEMUTUSKAN :
+Menetapkan : PERATURAN DAERAH TENTANG ORGANISASI DAN TATAKERJA SEKRETARIAT DAERAH DAN SEKRETARIAT DEWAN PERWAKILAN RAKYAT DAERAH PROVINSI DAERAH ISTIMEWA YOGYAKARTA
+BAB I
+KETENTUAN UMUM

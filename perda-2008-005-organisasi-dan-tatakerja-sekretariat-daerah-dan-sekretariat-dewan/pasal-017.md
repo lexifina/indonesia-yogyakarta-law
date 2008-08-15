@@ -1,0 +1,2 @@
+# Pasal 17
+Biro Administrasi Perekonomian dan Sumberdaya Alam mempunyai tugas menyiapkan bahan perumusan kebijakan, mengkoordinasikan serta memantau dan mengevaluasi pelaksanaan kebijakan di bidang perindustrian, perdagangan dan koperasi, usaha kecil dan menengah, badan usaha daerah, kerjasama, penanaman modal, ketahanan pangan, penyuluhan, perijinan, pertanian, kehutanan, perkebunan, lingkungan hidup, kelautan dan perikanan.

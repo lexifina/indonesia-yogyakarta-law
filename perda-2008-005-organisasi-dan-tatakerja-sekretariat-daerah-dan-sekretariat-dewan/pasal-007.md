@@ -1,0 +1,2 @@
+# Pasal 7
+Asisten Pemerintahan dan Kesejahteraan Rakyat mempunyai tugas membantu Sekretaris Daerah dalam merumuskan kebijakan dan mengkoordinasikan, membina, memantau dan mengevaluasi bidang pengawasan, penyelenggaraan administrasi pemerintahan, kependudukan, agraria, hukum, kesejahteraan rakyat dan kemasyarakatan, pendidikan, kesehatan, sosial, tenaga kerja dan transmigrasi, ketentraman dan ketertiban, perlindungan masyarakat, kesatuan bangsa dan politik, penanggulangan bencana, pemberdayaan masyarakat, keluarga berencana dan perempuan, agama, pemuda dan olah raga.

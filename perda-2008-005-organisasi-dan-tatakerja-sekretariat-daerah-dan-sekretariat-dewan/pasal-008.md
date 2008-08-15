@@ -1,0 +1,9 @@
+# Pasal 8
+Untuk melaksanakan tugas sebagaimana dimaksud dalam Pasal 11 Asisten Pemerintahan dan Kesejahteraan Rakyat mempunyai fungsi:
+a. penyusunan program kerja;
+b. pengkoordinasian perumusan kebijakan dan pedoman penyelenggaraan bidang pengawasan, penyelenggaraan administrasi pemerintahan, kependudukan, agraria, hukum, kesejahteraan rakyat dan kemasyarakatan, pendidikan, kesehatan, sosial, tenaga kerja dan transmigrasi, ketentraman dan ketertiban, perlindungan masyarakat, kesatuan bangsa dan politik, penanggulangan bencana, pemberdayaan masyarakat, keluarga berencana dan perempuan, agama, pemuda dan olah raga.
+c. pembinaan bidang pengawasan, penyelenggaraan administrasi pemerintahan, kependudukan, agraria, hukum, kesejahteraan rakyat dan kemasyarakatan, pendidikan, kesehatan, sosial, tenaga kerja dan transmigrasi, ketentraman dan ketertiban, perlindungan masyarakat, kesatuan bangsa dan politik, penanggulangan bencana, pemberdayaan masyarakat, keluarga berencana dan perempuan, agama, pemuda dan olah raga.
+d. pemantauan dan pengevaluasian bidang pengawasan, penyelenggaraan administrasi pemerintahan, kependudukan, agraria, hukum, kesejahteraan rakyat dan kemasyarakatan, pendidikan, kesehatan, sosial, tenaga kerja dan transmigrasi, ketentraman dan ketertiban, perlindungan masyarakat, kesatuan bangsa dan politik, penanggulangan bencana, pemberdayaan masyarakat, keluarga berencana dan perempuan, agama, pemuda dan olah raga.
+e. membantu Sekretaris Daerah dalam perumusan kebijakan penyelenggaraan pemerintahan daerah, pengkoordinasian pelaksanaan dan pemantauan serta pengevaluasian pelaksanaan kebijakan penyelenggaraan pemerintahan daerah.
+f. pelaksanaan tugas lain yang diberikan oleh Sekretaris Daerah sesuai dengan fungsi dan tugasnya.
+Paragaraf 2 Asisten Perekonomian dan Pembangunan

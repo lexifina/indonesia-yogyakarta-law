@@ -1,0 +1,2 @@
+# Pasal 25
+Biro Administrasi Kesejahteraan Rakyat dan Kemasyarakatan mempunyai tugas menyiapkan bahan perumusan kebijakan dan mengkoordinasikan bidang keluarga berencana, kesehatan, tenaga kerja dan transmigrasi, sosial, pengembangan masyarakat, pendidikan, pemuda dan olah raga, mental dan spiritual, rumah sakit daerah, perlindungan masyarakat, penanggulangan bencana, ketenteraman dan ketertiban, pemberdayaan masyarakat, pemberdayaan perempuan.

@@ -1,0 +1,3 @@
+# Pasal 9
+Asisten Perekonomian dan Pembangunan mempunyai tugas membantu Sekretaris Daerah dalam merumuskan kebijakan dan mengkoordinasikan, membina, memantau dan mengevaluasi bidang perekonomian, perencanaan pembangunan, statistik, penelitihan dan pengembangan, dekonsentrasi, perhubungan, pekerjaan umum, perumahan, budaya dan pariwisata, pertanian, peternakan, perkebunan, kehutanan, ketahanan pangan dan penyuluhan.
+pertambangan dan energi, lingkungan hidup, kelautan dan perikanan serta penyuluhan, koperasi dan usaha kecil menengah, penanaman modal, kerjasama, perijinan, perindustrian dan perdagangan, dan badan usaha milik daerah.
