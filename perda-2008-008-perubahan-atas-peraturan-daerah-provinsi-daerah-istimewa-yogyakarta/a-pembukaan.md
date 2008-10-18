@@ -1,0 +1,18 @@
+# Pembukaan
+PEMERINTAH PROVINSI DAERAH ISTIMEWA YOGYAKARTA PERATURAN DAERAH PROVINSI DAERAH ISTIMEWA YOGYAKARTA NOMOR 8 TAHUN 2008 TENTANG PERUBAHAN ATAS PERATURAN DAERAH PROVINSI DAERAH ISTIMEWA YOGYAKARTA NOMOR 3 TAHUN 2006 TENTANG BANTUAN KEUANGAN KEPADA PARTAI POLITIK DI PROVINSI DAERAH ISTIMEWA YOGYAKARTA
+DENGAN RAHMAT TUHAN YANG MAHA ESA GUBERNUR DAERAH ISTIMEWA YOGYAKARTA,
+Menimbang : a. bahwa bantuan keuangan kepada Partai Politik di Provinsi Daerah Istimewa Yogyakarta telah diatur dengan Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 3 Tahun 2006;
+b. bahwa dengan ditetapkannya Peraturan Menteri Dalam Negeri Nomor 25 Tahun 2006 tentang Perubahan Atas Peraturan Menteri Dalam Negeri Nomor 32 Tahun 2005 tentang Pedoman Pengajuan, Penyerahan dan Laporan Penggunaan Bantuan Keuangan Kepada Partai Politik, maka beberapa ketentuan dalam Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 3 Tahun 2006 tentang Bantuan Keuangan Kepada Partai Politik di Provinsi Daerah Istimewa Yogyakarta perlu diubah;
+c. bahwa berdasarkan pertimbangan sebagaimana dimaksud dalam huruf a, dan huruf b perlu menetapkan Peraturan Daerah tentang Perubahan Atas Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 3 Tahun 2006 tentang Bantuan Keuangan Kepada Partai Politik di Provinsi Daerah Istimewa Yogyakarta.
+Mengingat : 1. Pasal 18 ayat (6) Undang-Undang Dasar Negara Republik Indonesia Tahun 1945;
+2. Undang-undang Nomor 3 Tahun 1950 tentang Pembentukan Daerah Istimewa Jogyakarta sebagaimana telah diubah beberapa kali terakhir dengan Undang-Undang Nomor 9 Tahun 1955;
+3. Undang-Undang Nomor 32 Tahun 2004 tentang Pemerintahan Daerah (Lembaran Negara Republik Indonesia Tahun 2004 Nomor 125, Tambahan Lembaran Negara Republik Indonesia Nomor 4437) sebagaimana telah diubah beberapa kali terakhir dengan Undang-Undang Nomor 12 Tahun 2008 (Lembaran Negara Republik Indonesia Tahun 2008 Nomor 59, Tambahan Lembaran Negara Republik Indonesia Nomor 4884);
+4. Undang-Undang Nomor 2 Tahun 2008 tentang Partai Politik (Lembaran Negara Republik Indonesia Tahun 2008 Nomor 2, Tambahan Lembaran Negara Republik Indonesia Nomor 4801);
+5. Peraturan Pemerintah Nomor 31 Tahun 1950 tentang Berlakunya Undang-Undang Nomor 2, 3, 10, dan 11 Tahun 1950;
+6. Peraturan Pemerintah Nomor 29 Tahun 2005 tentang Bantuan Keuangan kepada Partai Poltik (Lembaran Negara Republik Indonesia Tahun 2005 Nomor 62, Tambahan Lembaran Negara Repiblik Indonesia Nomor 4513);
+7. Peraturan Menteri Dalam Negeri Nomor 32 Tahun 2005 tentang Pedoman Pengajuan, Penyerahan dan Laporan Penggunaan Bantuan Keuangan kepada Partai Politik sebagaimana telah diubah dengan Peraturan Menteri Dalam Negeri Nomor 25 Tahun 2006 ;
+8. Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 3 Tahun 2006 tentang Bantuan Keuangan Kepada Partai Politik di Propinsi Daerah Istimewa Yogyakarta (Lembaran Daerah Provinsi Daerah Istimewa Yogyakarta Tahun 2006 Nomor 5);
+9. Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 7 Tahun 2008 tentang Organisasi dan Tatakerja Inspektorat, Badan Perencanaan Pembangunan Daerah, Lembaga Teknis Daerah dan Satuan Polisi Pamong Praja Provinsi Daerah Istimewa Yogyakarta (Lembaran Daerah Provinsi Daerah Istimewa Yogyakarta Tahun 2008 Nomor 7).
+Dengan persetujuan bersama DEWAN PERWAKILAN RAKYAT DAERAH PROVINSI DAERAH ISTIMEWA YOGYAKARTA DAN GUBERNUR DAERAH ISTIMEWA YOGYAKARTA
+MEMUTUSKAN :
+Menetapkan : PERATURAN DAERAH TENTANG PERUBAHAN ATAS PERATURAN DAERAH PROVINSI DAERAH ISTIMEWAYOGYAKRTA NOMOR 3 TAHUN 2006TENTANG BANTUAN KEUANGAN KEPADA PARTAI POLITIK DI PROVINSI DAERAH ISTIMEWA YOGYAKARTA.
