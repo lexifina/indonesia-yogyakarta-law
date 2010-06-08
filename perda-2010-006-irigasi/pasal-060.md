@@ -1,0 +1,3 @@
+# Pasal 60
+(1) Setiap orang yang mengubah dan/atau membongkar jaringan irigasi primer atau sekunder tanpa izin sebagaimana dimaksud dalam Pasal 28 ayat (2) dipidana dengan pidana kurungan paling singkat 3 (tiga) bulan atau paling lama 6 (enam) bulan atau denda paling sedikit Rp. 20.000.000,00 (dua puluh juta rupiah) atau paling banyak Rp. 50.000.000,00 (lima puluh juta rupiah).
+(2) Setiap orang yang mengubah dan/atau membongkar jaringan irigasi tersier tanpa persetujuan sebagaimana dimaksud dala Pasal 28 ayat (3) dipidana dengan pidana kurungan paling lama 2 (dua) bulan atau denda paling banyak Rp. 20.000.000,00 (dua puluh juta rupiah).
