@@ -1,0 +1,7 @@
+# Pasal 35
+(1) Penanggung jawab satuan pendidikan yang melanggar ketentuan Pasal 9 ayat (1) huruf a, huruf b, huruf c, dan huruf d, dan Pasal 11 ayat (2) dan ayat (4) dipidana dengan pidana kurungan paling lama 3 (tiga) bulan atau denda paling banyak Rp 50.000.000,00 (lima puluh juta rupiah).
+(2) Penanggung jawab pondokan dan asrama yang melanggar ketentuan Pasal 14 ayat (1) huruf a, huruf b, huruf c, dan huruf d, dipidana dengan pidana kurungan paling lama 3 (tiga) bulan atau denda paling banyak Rp 50.000.000,00 (lima puluh juta rupiah).
+(3) Pimpinan Instansi Pemerintah Daerah dan instansi/lembaga Pemerintah di Daerah yang melanggar ketentuan Pasal 16 ayat (2), dipidana dengan pidana kurungan paling lama 3 (tiga) bulan atau denda paling banyak Rp 50.000.000,00 (lima puluh juta rupiah).
+(4) Pimpinan DPRD yang melanggar ketentuan Pasal 17 ayat (2), dipidana dengan pidana kurungan paling lama 3 (tiga) bulan atau denda paling banyak Rp 50.000.000,00 (lima puluh juta rupiah).
+(5) Penanggung jawab tempat usaha yang melanggar ketentuan Pasal 18 ayat (1) huruf a, huruf b, huruf c, dan huruf d, dipidana dengan pidana kurungan paling lama 3 (tiga) bulan atau denda paling banyak Rp 50.000.000,00 (lima puluh juta rupiah).
+(6) Penanggung jawab hotel, penginapan atau tempat hiburan yang melanggar ketentuan Pasal 19 ayat (1) dipidana dengan pidana kurungan paling lama 3 (tiga) bulan atau denda paling banyak Rp 50.000.000,00 (lima puluh juta rupiah).

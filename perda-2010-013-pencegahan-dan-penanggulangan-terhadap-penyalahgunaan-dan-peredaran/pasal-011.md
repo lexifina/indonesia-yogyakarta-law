@@ -1,0 +1,10 @@
+# Pasal 11
+(1) Jika di dalam satuan pendidikan terdapat pendidik atau tenaga kependidikan yang terlibat penyalahgunaan Narkotika, Psikotropika, dan Zat Adiktif dan sudah dinyatakan bersalah berdasarkan kekuatan hukum tetap, satuan pendidikan tersebut dapat menjatuhkan hukuman disiplin kepada pelaku sesuai dengan ketentuan peraturan perundang-undangan.
+(2) Jika di dalam satuan pendidikan terdapat peserta didik yang terlibat penyalahgunaan Narkotika, Psikotropika, dan Zat Adiktif, satuan pendidikan wajib memberikan pembebasan sementara dari kegiatan belajar-mengajar dan mewajibkan peserta didik tersebut untuk mengikuti program pendampingan dan/atau rehabilitasi.
+(3) Penyalahgunaan Narkotika, Psikotropika, dan Zat Adiktif yang dilakukan oleh peserta didik sebagaimana dimaksud pada ayat (2) harus dibuktikan dengan Surat Keterangan dari pihak yang berwenang dan/atau putusan pengadilan yang menyatakan bahwa yang bersangkutan secara nyata telah terbukti menyalahgunakan Narkotika, Psikotropika, dan Zat Adiktif.
+(4) Satuan Pendidikan wajib menerima kembali peserta didik yang dibebaskan sementara dari kegiatan belajar-mengajar sebagaimana dimaksud pada ayat (2) setelah selesai menjalani program pendampingan dan/atau rehabilitasi.
+(5) Jika di dalam satuan pendidikan terdapat peserta didik yang terbukti mengedarkan Narkotika, Psikotropika, dan Zat Adiktif dan diproses hukum serta dijatuhi hukuman, satuan pendidikan dapat memberikan pembebasan sementara dari kegiatan belajar-mengajar dan/atau menjatuhkan hukuman disiplin sesuai dengan ketentuan peraturan perundang-undangan di bidang pendidikan sampai dengan proses hukum selesai.
+(6) Satuan Pendidikan dapat menerima kembali peserta didik yang dibebaskan sementara dari kegiatan belajar-mengajar sebagaimana dimaksud pada ayat (5) setelah:
+a. dinyatakan bebas oleh pengadilan; dan/atau b. selesai menjalani hukuman.
+Bagian Keempat
+Pencegahan terhadap penyalahgunaan dan peredaran gelap Narkotika, Psikotropika, dan Zat Adiktif melalui Masyarakat
