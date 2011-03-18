@@ -1,0 +1,2 @@
+# Pasal 83
+Pada saat Peraturan Daerah ini mulai berlaku, Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 1 Tahun 2002 tentang Pajak Daerah (Lembaran Daerah Provinsi Daerah Istimewa Yogyakarta Tahun 2002 Nomor 1 Seri B) sebagaimana telah diubah dengan Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 2 Tahun 2007 tentang Perubahan Atas Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 1 Tahun 2002 tentang Pajak Daerah (Lembaran Daerah Provinsi Daerah Istimewa Yogyakarta Tahun 2007 Nomor 2) dicabut dan dinyatakan tidak berlaku.
