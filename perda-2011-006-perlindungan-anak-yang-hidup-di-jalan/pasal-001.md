@@ -1,0 +1,16 @@
+# Pasal 1
+Dalam Peraturan Daerah ini yang dimaksud dengan:
+1. Pemerintah Daerah adalah Pemerintah Provinsi Daerah Istimewa Yogyakarta.
+2. Gubernur adalah Gubernur Daerah Istimewa Yogyakarta.
+3. Perlindungan adalah segala tindakan untuk menjamin dan melindungi anak dan hak-haknya agar dapat hidup, tumbuh, berkembang, dan berpartisipasi, secara optimal sesuai dengan harkat dan martabat kemanusiaan, mendapat perlindungan dari diskriminasi, eksploitasi dan kekerasan melalui serangkaian upaya sehingga anak terentaskan dari kehidupan di jalan.
+4. Anak yang hidup di jalan adalah anak yang berusia di bawah 18 (delapan belas) tahun yang menghabiskan sebagian waktunya di jalan dan tempat-tempat umum yang meliputi anak yang rentan bekerja di jalanan, anak yang bekerja di jalanan, dan/atau anak yang bekerja dan hidup di jalanan yang menghabiskan sebagian besar waktunya untuk melakukan kegiatan hidup sehari-hari.
+5. Hak anak adalah bagian dari hak asasi manusia yang wajib dijamin, dilindungi, dan dipenuhi oleh orang tua, keluarga, masyarakat, pemerintah, dan negara.
+6. Keluarga adalah unit terkecil dalam masyarakat yang terdiri dari suami istri, atau suami istri dan anaknya, atau ayah dan anaknya, atau ibu dan anaknya, atau keluarga sedarah dalam garis lurus ke atas atau ke bawah sampai dengan derajat ketiga.
+7. Orang tua adalah ayah dan/atau ibu kandung, atau ayah dan/atau ibu tiri, atau ayah dan/atau ibu angkat.
+8. Keluarga pengganti adalah keluarga yang menggantikan peran orangtua kandung seperti keluarga kerabat, keluarga asuh, wali, dan keluarga angkat.
+9. Wali adalah orang atau badan yang dalam kenyataannya menjalankan kekuasaan asuh sebagai orang tua terhadap anak.
+10. Lembaga Kesejahteraan Sosial Anak selanjutnya disingkat LKSA adalah organisasi sosial atau perkumpulan sosial yang menyelenggarakan kesejahteraan sosial anak yang dibentuk oleh masyarakat baik yang berbadan hukum maupun yang tidak berbadan hukum yang berada di wilayah Provinsi Daerah Istimewa Yogyakarta, seperti panti sosial anak, panti asuhan anak, rumah singgah, dan rumah perlindungan sosial anak.
+11. Forum Perlindungan Anak yang Hidup di Jalan adalah suatu sarana jejaring lembaga-lembaga sosial anak.
+12. Pendidikan Layanan Khusus Anak yang Hidup di Jalan adalah layanan pendidikan yang diselenggarakan untuk anak-anak yang hidup di jalan melalui berbagai jenjang (tingkat satuan pendidikan dasar dan satuan pendidikan menengah) dalam rangka mengembangkan potensi dirinya agar menjadi manusia yang bermartabat, kreatif, dapat memiliki kompetensi hidup dan mandiri untuk mewujudkan masa depan yang lebih baik.
+13. Reintegrasi sosial adalah proses pengembalian anak kepada keluarga, keluarga pengganti dan/atau masyarakat sehingga anak dapat menjalankan fungsi-fungsi sosialnya dengan baik sebagaimana anak pada umumnya.
+14. Eksploitasi adalah tindakan dengan atau persetujuan korban yang meliputi tetapi tidak terbatas pada pelacuran, kerja atau pelayanan paksa, perbudakan atau praktek serupa perbudakan, penindasan, pemerasan, pemanfaatan fisik, seksual, organ reproduksi, atau secara melawan hukum memindahkan atau mentransplantasi organ dan/atau jaringan tubuh atau memanfaatkan tenaga atau kemampuan seseorang oleh pihak lain untuk mendapatkan keuntungan baik materiil maupun immateriil.
