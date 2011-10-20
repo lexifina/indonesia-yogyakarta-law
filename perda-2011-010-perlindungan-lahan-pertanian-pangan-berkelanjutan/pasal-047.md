@@ -1,0 +1,3 @@
+# Pasal 47
+Setiap pejabat pemerintah dan/atau pemerintah daerah dan/atau pemerintah kabupaten yang berwenang menerbitkan izin pengalihfungsian Lahan Pertanian Pangan Berkelanjutan tidak sesuai dengan ketentuan sebagaimana dimaksud dalam Pasal 23 ayat (2) dipidana dengan pidana penjara paling singkat 1 (satu) tahun dan paling lama 5 (lima) tahun dan/atau denda paling sedikit Rp. 1.000.000.000,00 (satu milyar rupiah) dan paling banyak Rp.
+5.000.000.000,00 (lima milyar rupiah) sesuai ketentuan dalam Pasal 73 Undang-Undang Nomor 41 Tahun 2009 tentang Perlindungan Lahan Pertanian Pangan Berkelanjutan

@@ -1,0 +1,3 @@
+# Pasal 46
+(1) Orang perseorangan yang melakukan alih fungsi Lahan Pertanian Pangan Berkelanjutan sebagaimana dimaksud dalam Pasal 23 ayat (2) dipidana dengan pidana penjara paling lama 5 (lima) tahun dan denda paling banyak Rp. 1.000.000.000,- (satu milyar rupiah) sesuai ketentuan dalam Pasal 72 Undang-Undang Nomor 41 Tahun 2009 tentang Perlindungan Lahan Pertanian Pangan Berkelanjutan.
+(2) Dalam hal perbuatan sebagaimana dimaksud pada ayat (1) dilakukan oleh pejabat pemerintah dan/atau pemerintah daerah dan/atau pemerintah kabupaten, pidananya ditambah 1/3 (satu pertiga) dari pidana yang diancamkan.
