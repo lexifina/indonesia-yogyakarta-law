@@ -1,0 +1,7 @@
+# Pasal 16
+(1) Setiap SKPD berkewajiban untuk menyusun Rencana Kebutuhan Barang 5 (lima) Tahunan dan Anggaran Tahunan SKPD setelah memperhatikan ketersediaan barang milik daerah yang ada di lingkungannya.
+(2) Perencanaan Kebutuhan Pemeliharaan Barang Milik Daerah (RKPBMD) disusun dalam Rencana Kerja dan Anggaran Satuan Kerja Perangkat Daerah dengan memperhatikan data barang yang ada dalam pemakaian.
+(3) Perencanaan kebutuhan dan pemeliharaan barang milik daerah sebagaimana dimaksud pada ayat (1) dan ayat (2), berpedoman pada Standarisasi Sarana dan Prasarana Kerja Pemerintahan Daerah dan Standar Harga Barang dan Jasa yang ditetapkan dengan Peraturan Gubernur.
+(4) Peraturan Gubernur sebagaimana dimaksud pada ayat (3) disusun oleh SKPD yang mempunyai tugas dan fungsi menyusun Standarisasi Sarana dan Prasarana Kerja Pemerintahan Daerah dan Standar Harga Barang dan Jasa.
+(5) Peraturan Gubernur sebagaimana dimaksud pada ayat (3), dijadikan acuan dalam menyusun Rencana Kebutuhan Barang Milik Daerah (RKBMD) dan Rencana Kebutuhan Pemeliharaan Barang Milik Daerah (RKPBMD).
+(6) Rencana Kebutuhan Barang Milik Daerah (RKBMD) dan Rencana Kebutuhan Pemeliharaan Barang Milik Daerah (RKPBMD) sebagaimana dimaksud pada ayat (1) dan ayat (2), sebagai dasar penyusunan Rencana Kerja dan Anggaran (RKA) masing-masing SKPD sebagai bahan penyusunan Rencana Anggaran Pendapatan dan Belanja Daerah (RAPBD).
