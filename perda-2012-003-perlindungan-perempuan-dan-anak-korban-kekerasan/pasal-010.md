@@ -1,0 +1,4 @@
+# Pasal 10
+Eksploitasi sebagaimana dimaksud dalam Pasal 5 huruf (e) disebabkan karena:
+a. perbuatan yang mengeksploitasi ekonomi atau seksual dengan maksud untuk menguntungkan diri sendiri atau orang lain;
+b. perbuatan yang dengan atau tanpa persetujuan korban yang meliputi tapi tidak terbatas pada pelacuran, kerja atau pelayanan paksa, perbudakan atau praktik serupa, penindasan, pemerasan, pemanfaatan fisik, seksual, organ reproduksi, atau secara melawan hukum memindahkan atau mentransplantasi organ dan/atau jaringan tubuh atau memanfaatkan tenaga atau kemampuan seseorang oleh pihak lain untuk mendapatkan keuntungan baik materiil maupun immateriil; dan/atau c. segala bentuk pemanfaatan organ tubuh seksual atau organ tubuh lain dari korban untuk mendapatkan keuntungan, termasuk tetapi tidak terbatas pada semua kegiatan pelacuran atau pencabulan
