@@ -1,0 +1,5 @@
+# Pasal 5
+(1) Nilai penyertaan modal sebagaimana dimaksud dalam Pasal 4 sebesar Rp. 510.000.000.000,00 (lima ratus sepuluh miliar rupiah).
+(2) Penyertaan modal sebagaimana dimaksud pada ayat (1) bersumber dari pengalihan seluruh saham milik Pemerintah Daerah pada Perusahaan Daerah Bank Pembangunan Daerah Propinsi Daerah Istimewa Yogyakarta ke PT. Bank BPD DIY sebesar Rp. 127.500.000.000,00 (seratus dua puluh tujuh miliar lima ratus juta rupiah) dan penambahan penyertaan modal sebesar Rp. 382.500.000.000,00 (tiga ratus delapan puluh dua miliar lima ratus juta rupiah) yang bersumber dari keuntungan Pemerintah Daerah pada PT. BPD DIY.
+(3) Penyetoran modal sebesar Rp. 382.500.000.000,00 (tiga ratus delapan puluh dua miliar lima ratus juta rupiah) untuk memenuhi nilai penyertaan modal sebagaimana dimaksud pada ayat (1), dilaksanakan selama 4 (empat) tahun, yang dianggarkan dari APBD Tahun Anggaran 2013 sampai dengan Tahun Anggaran 2016.
+(4) Rincian setiap tahun jumlah penyertaan modal sebagaimana dimaksud dalam ayat (3) diatur dalam APBD setiap tahun anggaran .

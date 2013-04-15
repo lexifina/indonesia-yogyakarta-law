@@ -1,0 +1,26 @@
+# Pembukaan
+GUBERNUR DAERAH ISTIMEWA YOGYAKARTA
+PERATURAN DAERAH DAERAH ISTIMEWA YOGYAKARTA NOMOR 5 TAHUN 2013 TENTANG PENYERTAAN MODAL DAERAH PADA BADAN USAHA MILIK DAERAH DAN PERSEROAN TERBATAS ASURANSI BANGUN ASKRIDA
+DENGAN RAHMAT TUHAN YANG MAHA ESA GUBERNUR DAERAH ISTIMEWA YOGYAKARTA,
+Menimbang : a. bahwa Penyertaan Modal Daerah merupakan salah satu sarana untuk meningkatkan pertumbuhan perekonomian daerah dan menambah pendapatan daerah, dalam rangka pelaksanan otonomi daerah yang nyata dan bertanggung jawab;
+b. bahwa berdasarkan Peraturan Menteri Dalam Negeri Nomor 13 Tahun 2006 tentang Pedoman Pengelolaan Keuangan Daerah sebagaimana telah diubah terakhir dengan Peraturan Menteri Dalam Negeri Nomor 21 Tahun 2011 tentang Perubahan Kedua Atas Peraturan Menteri Dalam Negeri Nomor 13 Tahun 2006 tentang Pedoman Pengelolaan Keuangan Daerah, Pemerintah Daerah dapat melakukan penyertaan modal yang diatur dengan Peraturan Daerah;
+c. bahwa berdasarkan pertimbangan sebagaimana dimaksud dalam huruf a dan huruf b, perlu menetapkan Peraturan Daerah tentang Penyertaan Modal Daerah pada Badan Usaha Milik Daerah dan Perseroan Terbatas Asuransi Bangun Askrida;
+Mengingat : 1. Pasal 18 ayat (6) Undang-Undang Dasar Negara Repulik Indonesia Tahun 1945;
+2. Undang-Undang Nomor 3 Tahun 1950 tentang Pembentukan Daerah Istimewa Jogjakarta (Berita Negara Republik Indonesia Tahun 1950 Nomor 3) sebagaimana telah diubah, terakhir dengan Undang-Undang Nomor 9 Tahun 1955 tentang Perubahan Undang-Undang Nomor 3 jo. Nomor 19 Tahun 1950 tentang Pembentukan Daerah Istimewa Jogjakarta (Lembaran Negara Republik Indonesia Tahun 1955 Nomor 43, Tambahan Lembaran Negara Republik Indonesia Nomor 827);
+3. Undang-Undang Nomor 32 Tahun 2004 tentang Pemerintahan Daerah (Lembaran Negara Republik Indonesia Tahun 2004 Nomor 125, Tambahan Lembaran Negara Republik Indonesia Nomor 4437) sebagaimana telah diubah, terakhir dengan Undang-Undang Nomor 12 Tahun 2008 tentang Perubahan Kedua Atas Undang-Undang Nomor 32 Tahun 2004 tentang Pemerintahan Daerah (Lembaran Negara Republik Indonesia Tahun 2008 Nomor 59, Tambahan Lembaran Negara Republik Indonesia Nomor 4844);
+4. Undang-Undang Nomor 13 Tahun 2012 tentang Keistimewaan Daerah Istimewa Yogyakarta (Lembaran Negara Republik Indonesia Tahun 2012 Nomor 170, Tambahan Lembaran Negara Republik Indonesia Nomor 5339);
+5. Peraturan Pemerintah Nomor 31 Tahun 1950 tentang Berlakunya Undang-Undang Nomor 2, 3, 10, dan 11 Tahun 1950 (Berita Negara Republik Indonesia Tahun 1950 Nomor 58);
+6. Peraturan Pemerintah Nomor 58 Tahun 2005 tentang Pengelolaan Keuangan Daerah (Lembaran Negara Republik Indonesia Tahun 2005 Nomor 140, Tambahan Lembaran Negara Republik Indonesia Nomor 4578);
+7. Peraturan Pemerintah Nomor 6 Tahun 2006 tentang Pengelolaan Barang Milik Negara/Daerah (Lembaran Negara Republik Indonesia Tahun 2006 Nomor 20, Tambahan Lembaran Negara Republik Indonesia Nomor 4609) sebagaimana telah diubah dengan Peraturan Pemerintah Nomor 38 Tahun 2008 tentang Perubahan Atas Peraturan Pemerintah Nomor 6 Tahun 2006 tentang Pengelolaan Barang Milik Negara/Daerah (Lembaran Negara Republik Indonesia Tahun 2008 Nomor 78, Tambahan Lembaran Negara Republik Indonesia Nomor 4855);
+8. Peraturan Menteri Dalam Negeri Nomor 13 Tahun 2006 tentang Pedoman Pengelolaan Keuangan Daerah sebagaimana telah diubah dengan Peraturan Menteri Dalam Negeri Nomor 21 Tahun 2011 tentang Perubahan Kedua Atas Peraturan Menteri Dalam Negeri Nomor 13 Tahun 2006 tentang Pedoman Pengelolaan Keuangan Daerah;
+9. Peraturan Menteri Dalam Negeri Nomor 17 Tahun 2007 tentang Pedoman Teknis Pengelolaan Barang Milik Daerah;
+10. Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 1 Tahun 1989 tentang Badan Usaha Kredit Pedesaan Propinsi Daerah Istimewa Yogyakarta (Lembaran Daerah Propinsi Daerah Istimewa Yogyakarta Seri D Nomor 37 Tahun 1990);
+11. Peraturan Daerah Propinsi Daerah Istimewa Yogyakarta Nomor 9 Tahun 2004 tentang Perubahan Bentuk Badan Hukum Perusahaan Daerah Tarumartani Propinsi Daerah Istimewa Yogyakarta menjadi Perseroan Terbatas (Lembaran Daerah Propinsi Daerah Istimewa Yogyakarta Seri D Nomor 39 Tahun 2004);
+12. Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 15 Tahun 2011 tentang Pengelolaan Barang Milik Daerah (Lembaran Daerah Provinsi Daerah Istimewa Yogyakarta Tahun 2011 Nomor 15, Tambahan Lembaran Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 15);
+13. Peraturan Daerah Daerah Istimewa Yogyakarta Nomor 11 Tahun 2012 tentang Perubahan Bentuk Badan Hukum Bank Pembangunan Daerah Propinsi Daerah Istimewa Yogyakarta menjadi Perseroan Terbatas Bank Pembangunan Daerah Daerah Istimewa Yogyakarta (Lembaran Daerah Daerah Istimewa Yogyakarta Tahun 2012 Nomor 11, Tambahan Lembaran Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 11);
+14. Peraturan Daerah Daerah Istimewa Yogyakarta Nomor 14 Tahun 2012 tentang Pendirian Perusahaan Penjaminan Kredit Daerah (Lembaran Daerah Daerah Istimewa Yogyakarta Tahun 2012 Nomor 14, Tambahan Lembaran Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 14);
+Dengan Persetujuan Bersama DEWAN PERWAKILAN RAKYAT DAERAH DAERAH ISTIMEWA YOGYAKARTA dan GUBERNUR DAERAH ISTIMEWA YOGYAKARTA
+MEMUTUSKAN:
+Menetapkan : PERATURAN DAERAH TENTANG PENYERTAAN MODAL DAERAH PADA BADAN USAHA MILIK DAERAH DAN PERSEROAN TERBATAS ASURANSI BANGUN ASKRIDA.
+BAB I
+KETENTUAN UMUM
