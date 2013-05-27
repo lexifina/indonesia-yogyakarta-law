@@ -1,0 +1,6 @@
+# Pasal 7
+(1) Materi muatan Perda sebagaimana dimaksud dalam Pasal 6 huruf a berisi materi muatan dalam rangka penyelenggaraan otonomi daerah dan tugas pembantuan serta menampung kondisi khusus daerah dan/atau penjabaran lebih lanjut peraturan perundang-undangan yang lebih tinggi.
+(2) Materi muatan Perdais sebagaimana dimaksud dalam Pasal 6 huruf b berisi materi muatan penyelenggaraan kewenangan dalam urusan Keistimewaan.
+(3) Materi muatan Peraturan Gubernur sebagaimana dimaksud dalam Pasal 6 huruf c berisi materi muatan untuk menjalankan perintah Perda dan/atau penjabaran peraturan perundang – undangan dalam rangka menyelenggarakan kekuasaan pemerintah di Daerah.
+(4) Materi muatan Peraturan Bersama Gubernur sebagaimana dimaksud dalam Pasal 6 huruf d berisi materi muatan untuk menjalankan peraturan perundang-undangan dalam rangka menyelenggarakan kekuasaan pemerintah di Daerah sesuai dengan kewenangan masing-masing untuk mengatur suatu urusan yang menyangkut kepentingan bersama.
+(5) Materi muatan Keputusan Gubernur sebagaimana dimaksud dalam Pasal 6 huruf e berisi materi muatan yang bersifat penetapan untuk menjalankan perintah peraturan perundang-undangan dalam rangka menyelenggarakan kewenangan pemerintah di Daerah.
