@@ -1,0 +1,2 @@
+# Pasal 6
+Pada saat Peraturan Daerah ini mulai berlaku, semua kesepakatan yang telah dibuat dengan pihak lain yang menjadi dasar diperolehnya hasil LLPADS dinyatakan tetap berlaku sampai berakhirnya kesepakatan tersebut serta semua sumber-sumber LLPADS yang selama ini telah diterima dan diakui sebagai penerimaan bukan pajak Daerah, bukan retribusi Daerah, dan bukan hasil Pengelolaan Kekayaan Daerah yang dipisahkan tetap dinyatakan sebagai LLPADS.

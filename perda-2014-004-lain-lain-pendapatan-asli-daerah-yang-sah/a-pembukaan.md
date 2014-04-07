@@ -1,0 +1,14 @@
+# Pembukaan
+GUBERNUR DAERAH ISTIMEWA YOGYAKARTA PERATURAN DAERAH DAERAH ISTIMEWA YOGYAKARTA NOMOR 4 TAHUN 2014 TENTANG LAIN-LAIN PENDAPATAN ASLI DAERAH YANG SAH
+DENGAN RAHMAT TUHAN YANG MAHA ESA GUBERNUR DAERAH ISTIMEWA YOGYAKARTA,
+Menimbang : bahwa untuk melaksanakan ketentuan Pasal 158 ayat (3) Undang-Undang Nomor 32 Tahun 2004 tentang Pemerintahan Daerah sebagaimana telah diubah terakhir dengan Undang-Undang Nomor 12 Tahun 2008 tentang Perubahan Kedua Atas Undang-Undang Nomor 32 Tahun 2004 tentang Pemerintahan Daerah perlu menetapkan Peraturan Daerah tentang Lain-Lain Pendapatan Asli Daerah Yang Sah;
+Mengingat : 1. Pasal 18 ayat (6) Undang-Undang Dasar Negara Republik Indonesia Tahun 1945;
+2. Undang-Undang Nomor 3 Tahun 1950 tentang Pembentukan Daerah Istimewa Jogjakarta (Berita Negara Republik Indonesia Tahun 1950 Nomor 3) sebagaimana telah diubah terakhir dengan Undang-Undang Nomor 9 Tahun 1955 tentang Perubahan Undang-Undang Nomor 3 Jo. Nomor 19 Tahun 1950 tentang Pembentukan Daerah Istimewa Jogjakarta (Lembaran Negara Republik Indonesia Tahun 1955 Nomor 43, Tambahan Lembaran Negara Republik Indonesia Nomor 827);
+3. Undang-Undang Nomor 32 Tahun 2004 tentang Pemerintahan Daerah (Lembaran Negara Republik Indonesia Tahun 2004 Nomor 125, Tambahan Lembaran Negara Republik Indonesia Nomor 4437) sebagaimana telah diubah terakhir dengan Undang-Undang Nomor 12 Tahun 2008 tentang Perubahan Kedua Atas Undang-Undang Nomor 32 Tahun 2004 tentang Pemerintahan Daerah (Lembaran Negara Republik Indonesia Tahun 2008 Nomor 59, Tambahan Lembaran Negara Republik Indonesia Nomor 4844);
+4. Undang-Undang Nomor 13 Tahun 2012 Tentang Keistimewaan Daerah Istimewa Yogyakarta (Lembaran Negara Republik Indonesia Tahun 2012 Nomor 170, Tambahan Lembaran Negara Republik Indonesia Nomor 5339);
+5. Peraturan Pemerintah Nomor 31 Tahun 1950 tentang Berlakunya Undang-Undang Nomor 2, 3, 10, dan 11 Tahun 1950 (Berita Negara Republik Indonesia Tahun 1950 Nomor 58);
+6. Peraturan Pemerintah Nomor 58 Tahun 2005 tentang Pengelolaan Keuangan Daerah (Lembaran Negara Republik Indonesia Tahun 2005 Nomor 140, Tambahan Lembaran Negara Republik Indonesia Nomor 4578);
+7. Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 4 Tahun 2007 tentang Pokok-pokok Pengelolaan Keuangan Daerah (Lembaran Daerah Provinsi Daerah Istimewa Yogyakarta Tahun 2007 Nomor 4), sebagaimana telah diubah dengan Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 11 Tahun 2008 tentang Perubahan Atas Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 4 Tahun 2007 tentang Pokok-pokok Pengelolaan Keuangan Daerah (Lembaran Daerah Provinsi Daerah Istimewa Yogyakarta Tahun 2008 Nomor 11);
+Dengan persetujuan bersama DEWAN PERWAKILAN RAKYAT DAERAH DAERAH ISTIMEWA YOGYAKARTA dan GUBERNUR DAERAH ISTIMEWA YOGYAKARTA
+MEMUTUSKAN:
+Menetapkan : PERATURAN DAERAH TENTANG LAIN-LAIN PENDAPATAN ASLI DAERAH YANG SAH.
