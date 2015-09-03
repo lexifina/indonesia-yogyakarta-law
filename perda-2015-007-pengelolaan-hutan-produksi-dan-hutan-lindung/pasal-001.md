@@ -1,0 +1,21 @@
+# Pasal 1
+Dalam Peraturan Daerah ini yang dimaksud dengan:
+1. Hutan adalah suatu kesatuan ekosistem berupa hamparan lahan berisi sumber daya alam hayati yang didominasi pepohonan dalam persekutuan alam lingkungannya, yang satu dengan yang lain tidak dapat dipisahkan.
+2. Kawasan Hutan adalah wilayah tertentu yang ditunjuk dan/atau ditetapkan oleh Pemerintah untuk dipertahankan keberadaannya sebagai hutan tetap.
+3. Hutan Produksi adalah kawasan hutan yang mempunyai fungsi pokok memproduksi hasil hutan.
+4. Hutan Lindung adalah kawasan hutan yang mempunyai fungsi pokok sebagai perlindungan sistem penyangga kehidupan untuk mengatur tata air, mencegah banjir, mengendalikan erosi, mencegah intrusi air laut, dan memelihara kesuburan tanah.
+5. Tata Hutan adalah kegiatan rancang bangun unit pengelolaan hutan, mencakup kegiatan pengelompokan sumber daya hutan sesuai dengan tipe ekosistem dan potensi yang terkandung di dalamnya dengan tujuan untuk memperoleh manfaat yang sebesar-besarnya bagi masyarakat secara lestari.
+6. Pemanfaatan Hutan adalah kegiatan berupa pemanfaatan kawasan hutan, pemanfaatan jasa lingkungan, pemanfaatan hasil hutan kayu, pemanfaatan hasil hutan bukan kayu, pemungutan hasil hutan kayu, dan pemungutan hasil hutan bukan kayu, secara optimal, berkeadilan untuk kesejahteraan masyarakat dengan tetap menjaga kelestariannya.
+7. Pemanfaatan Kawasan Hutan adalah kegiatan untuk memanfaatkan ruang tumbuh sehingga diperoleh manfaat lingkungan, manfaat sosial, dan manfaat ekonomi secara optimal dengan tidak mengurangi fungsi utamanya.
+8. Pemanfaatan Hasil Hutan Kayu adalah kegiatan untuk memanfaatkan dan mengusahakan hasil hutan berupa kayu dengan tidak merusak lingkungan dan tidak mengurangi fungsi pokoknya.
+9. Pemanfaatan Hasil Hutan Bukan Kayu adalah kegiatan untuk memanfaatkan dan mengusahakan hasil hutan berupa bukan kayu dengan tidak merusak lingkungan dan tidak mengurangi fungsi pokoknya.
+10. Pemungutan Hasil Hutan adalah kegiatan untuk mengambil hasil hutan baik berupa kayu dan/atau bukan kayu dengan batasan waktu, luas, dan/atau volume tertentu.
+11. Pemanfaatan Jasa Lingkungan adalah kegiatan untuk memanfaatkan potensi jasa lingkungan dengan tidak merusak lingkungan dan mengurangi fungsi utamanya.
+12. Perlindungan Hutan dan Konservasi Alam adalah kegiatan untuk mencegah dan membatasi kerusakan hutan, kawasan hutan, dan hasil hutan yang disebabkan oleh perbuatan manusia, ternak, kebakaran, daya-daya alam, hama, dan penyakit serta mempertahankan dan menjaga hak-hak negara, masyarakat, dan perorangan atas hutan, kawasan hutan, hasil hutan, investasi serta perangkat yang berhubungan dengan pengelolaan hutan.
+13. Wilayah Tertentu adalah wilayah hutan yang situasi dan kondisinya belum menarik bagi pihak ketiga untuk mengembangkan pemanfaatannya berada di luar areal izin pemanfaatan dan penggunaan kawasan hutan.
+14. Pengelolaan Daerah Aliran Sungai Terpadu, yang selanjutnya disebut Pengelolaan DAS Terpadu adalah rangkaian upaya yang memperlakukan DAS sebagai suatu kesatuan ekosistem dari hulu sampai hilir dengan pendekatan lintas sektor dan lintas wilayah administrasi pemerintahan secara partisipatif, koordinatif, integratif, sinkron, dan sinergis guna mewujudkan tujuan pengelolaan DAS.
+15. Kawasan Hutan dengan Tujuan Khusus yang selanjutnya disingkat KHDTK adalah kawasan hutan tertentu yang ditetapkan oleh Pemerintah dan Pemerintah Daerah untuk tujuan-tujuan penelitian dan pengembangan, pendidikan dan pelatihan, serta religi dan budaya yang dilaksanakan oleh masyarakat hukum adat, lembaga pendidikan, lembaga penelitian, dan lembaga sosial keagamaan dengan tidak merubah fungsi pokok kawasan hutan.
+16. Daerah Istimewa Yogyakarta, yang selanjutnya disingkat DIY, adalah daerah provinsi yang mempunyai keistimewaan dalam penyelenggaraan urusan pemerintahan dalam kerangka Negara Kesatuan Republik Indonesia.
+17. Gubernur adalah Gubernur Daerah Istimewa Yogyakarta.
+18. Kepala Dinas adalah Kepala Dinas yang membidangi Kehutanan Daerah Istimewa Yogyakarta.
+19. Balai Kesatuan Pengelolaan Hutan Yogyakarta yang selanjutnya disebut Balai KPH Yogyakarta adalah Unit Pelaksana Teknis Daerah Dinas Kehutanan dan Perkebunan DIY yang mempunyai tugas melaksanakan pengelolaan Hutan Produksi dan Hutan Lindung.
