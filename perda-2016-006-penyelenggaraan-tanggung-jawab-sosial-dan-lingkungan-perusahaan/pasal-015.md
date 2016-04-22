@@ -1,0 +1,3 @@
+# Pasal 15
+(1) Pembiayaan pelaksanaan program dan kegiatan TSLP sebagaimana dimaksud dalam Pasal 13 dialokasikan dari keuntungan bersih setelah pajak atau harus dialokasikan secara khusus dari mata anggaran lain yang ditentukan dengan memperhatikan kemampuan perusahaan, serta sesuai dengan ketentuan peraturan perundang-undangan.
+(2) Bagi perusahaan yang menjalankan kegiatan usaha di bidang dan /atau berkaitan dengan sumber daya alam, berkewajiban melaksanakan TSLP dengan biaya yang dianggarkan dan diperhitungkan sebagai biaya operasional perusahaan dengan memperhatikan ukuran usaha, jenis usaha, cakupan pemangku kepentingan dan kinerja keuangan.

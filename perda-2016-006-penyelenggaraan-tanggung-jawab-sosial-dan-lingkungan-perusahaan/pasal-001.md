@@ -1,0 +1,14 @@
+# Pasal 1
+Dalam Peraturan Daerah ini yang dimaksud dengan :
+1. Tanggung Jawab Sosial dan Lingkungan Perusahaan yang selanjutnya disebut dengan TSLP adalah tanggung jawab yang melekat pada setiap Perusahaan untuk tetap menciptakan hubungan yang serasi, seimbang, dan sesuai dengan lingkungan, nilai, norma, budaya masyarakat, untuk berperan serta dalam pelaksanaan pembangunan ekonomi berkelanjutan guna meningkatkan kualitas kehidupan dan lingkungan yang bermanfaat, bagi perusahaan sendiri, komunitas setempat, maupun masyarakat pada umumnya.
+2. Penyelenggaraan Tanggung Jawab Sosial dan Lingkungan Perusahaan adalah proses menyelenggarakan Tanggungjawab Sosial dan Lingkungan Perusahaan disinergikan dengan program pembangunan daerah.
+3. Forum Tanggung Jawab Sosial dan Lingkungan Perusahaan yang selanjutnya disebut Forum TSLP adalah forum komunikasi perusahaan dalam rangka melaksanakan tanggung jawab terhadap sosial dan lingkungan perusahaan yang dibentuk oleh Pemerintah Daerah Daerah Istimewa Yogyakarta sebagai wadah koordinasi, komunikasi, dan sinkronisasi penyelenggaraan TSLP.
+4. Perusahaan adalah perorangan atau badan yang menjalankan usaha yang meliputi perseroan terbatas, perseroan komanditer, perseroan lainnya, Badan Usaha Milik Negara (BUMN), atau Badan Usaha Milik Daerah (BUMD) dengan nama dan dalam bentuk apapun, firma, kongsi, dan koperasi.
+5. Kesejahteraan Sosial adalah kondisi terpenuhinya kebutuhan material, spiritual, dan sosial warga negara agar dapat hidup layak dan mampu mengembangkan diri, sehingga dapat melaksanakan fungsi sosialnya.
+6. Usaha Mikro, Kecil dan Koperasi adalah usaha produktif milik orang perorangan dan/atau badan usaha perorangan yang memenuhi kriteria sebagaimana diatur dalam Undang-Undang tentang Usaha Mikro, Kecil, dan Menengah dan Undang-Undang tentang Perkoperasian.
+7. Pemangku kepentingan adalah semua pihak, baik dalam lingkungan organisasi maupun di luar lingkungan organisasi, yang mempunyai kepentingan baik langsung maupun tidak langsung yang bisa mempengaruhi atau terpengaruh dengan keberadaan, kegiatan dan perilaku organisasi yang bersangkutan.
+8. Pemerintah Daerah yang selanjutnya disebut Pemerintah Daerah DIY adalah Gubernur dan perangkat Daerah Daerah Istimewa Yogyakarta sebagai unsur penyelenggara pemerintahan daerah.
+9. Pemerintah Kabupaten/Kota adalah Pemerintah Kabupaten Sleman, Bantul, Gunungkidul, Kulon Progo dan Kota Yogyakarta.
+10. Wilayah sasaran adalah daerah dan atau kawasan industri, kawasan pemukiman penduduk, kawasan dengan peruntukan apapun menurut ketentuan peraturan perundang-undangan baik yang ada di darat maupun di laut/daerah perairan yang terkena imbas baik langsung maupun tidak langsung keberadaan perusahaan sehingga fungsi lingkungan hidup terganggu dan mengalami kerusakan fisik dan non fisik.
+11. Daerah adalah Daerah Istimewa Yogyakarta.
+12. Gubernur adalah Gubernur Daerah Istimewa Yogyakarta.
