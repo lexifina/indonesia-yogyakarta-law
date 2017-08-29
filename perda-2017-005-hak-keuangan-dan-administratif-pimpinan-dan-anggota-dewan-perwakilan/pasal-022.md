@@ -1,0 +1,5 @@
+# Pasal 22
+(1) Program sebagaimana dimaksud dalam Pasal 21 ayat (1) huruf a diuraikan ke dalam beberapa kegiatan yang mencerminkan fungsi, tugas, dan wewenang DPRD sesuai dengan ketentuan peraturan perundang-undangan.
+(2) Kegiatan sebagaimana dimaksud pada ayat (1) disusun ke dalam rencana kerja dengan mempedomani agenda yang disusun oleh masing-masing alat kelengkapan untuk 1 (satu) tahun anggaran dan ditetapkan oleh Pimpinan DPRD sesuai dengan ketentuan peraturan perundang-undangan.
+(3) Dalam hal pelaksanaan kegiatan DPRD menggunakan perjalanan dinas, maka standar satuan harga perjalanan DPRD diatur dalam Peraturan Gubernur sesuai dengan ketentuan peraturan perundang-undangan.
+(4) Dalam pelaksanaan kegiatan reses sebagaimana dimaksud dalam Pasal 8 ayat (2) juga disediakan belanja penunjang reses yang dibayarkan oleh pemegang kas/bendahara sekretariat DPRD kepada pihak ketiga antara lain konsumsi, alat tulis kantor, sewa tempat, sedangkan kepada Pimpinan dan Anggota DPRD diberikan uang perjalanan dinas.
