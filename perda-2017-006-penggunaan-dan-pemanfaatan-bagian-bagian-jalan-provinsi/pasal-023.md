@@ -1,0 +1,3 @@
+# Pasal 23
+Standar muatan kendaraan dengan dimensi serta muatan sumbu terberat sebagaimana dimaksud dalam Pasal 20 ayat (2) pada Jalan Provinsi meliputi:
+a. jalan kelas II, dapat dilalui kendaraan bermotor dengan ukuran lebar tidak melebihi 2.500 (dua ribu lima ratus) milimeter, ukuran panjang tidak melebihi 12.000 (dua belas ribu) milimeter, ukuran paling tinggi 4.200 (empat ribu dua ratus) milimeter, dan muatan sumbu terberat 8 (delapan) ton; dan b. jalan kelas III, dapat dilalui kendaraan bermotor dengan ukuran lebar tidak melebihi 2.100 (dua ribu seratus) milimeter, ukuran panjang tidak melebihi 9.000 (sembilan ribu) milimeter, ukuran paling tinggi 3.500 (tiga ribu lima ratus) milimeter, dan muatan sumbu terberat 8 (delapan) ton.
