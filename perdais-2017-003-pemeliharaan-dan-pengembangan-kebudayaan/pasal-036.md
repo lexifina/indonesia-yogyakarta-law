@@ -1,0 +1,2 @@
+# Pasal 36
+Pada saat Peraturan Daerah Istimewa ini mulai berlaku, Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 4 Tahun 2011 tentang Tata Nilai Budaya, Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 5 Tahun 2011 tentang Pendidikan Berbasis Budaya, dan Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 6 Tahun 2012 tentang Pelestarian dan Pengelolaan Cagar Budaya dinyatakan tetap berlaku sepanjang tidak bertentangan dengan Peraturan Daerah Istimewa ini.
