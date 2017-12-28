@@ -1,0 +1,17 @@
+# Pasal 1
+Dalam Peraturan Daerah ini, yang dimaksud dengan:
+1. Industri Kreatif adalah industri yang mentransformasi dan memanfaatkan ide, gagasan, jejaring/jaringan, kreativitas, keterampilan, teknologi informasi, dan kekayaan intelektual untuk menghasilkan barang dan jasa.
+2. Koperasi adalah badan usaha yang beranggotakan orang-seorang atau badan hukum koperasi dengan melandaskan kegiatannya berdasarkan prinsip koperasi sekaligus sebagai gerakan ekonomi rakyat yang berdasar atas asas kekeluargaan.
+3. Usaha Kecil adalah usaha ekonomi produktif yang berdiri sendiri, yang dilakukan oleh orang perorangan atau badan usaha yang bukan merupakan anak perusahaan atau bukan cabang perusahaan yang dimiliki, dikuasai, atau menjadi bagian baik langsung maupun tidak langsung dari usaha menengah atau usaha besar yang memenuhi kriteria usaha kecil sebagaimana dimaksud dalam Undang-Undang.
+4. Dunia Usaha adalah Usaha Kecil yang melakukan kegiatan ekonomi di Indonesia dan berdomisili di Indonesia.
+5. Pemberdayaan adalah upaya yang dilakukan Pemerintah Daerah, dunia usaha, dan masyarakat secara sinergis dalam bentuk penumbuhan iklim dan pengembangan usaha terhadap Industri Kreatif, Koperasi, dan Usaha Kecil sehingga mampu tumbuh dan berkembang menjadi usaha yang tangguh dan mandiri.
+6. Perlindungan adalah upaya menjaga dan melindungi Industri Kreatif, Koperasi, dan Usaha Kecil dari hal-hal yang berpotensi menghambat dan merugikan pertumbuhan dan perkembangan Industri Kreatif, Koperasi, dan Usaha Kecil.
+7. Iklim Usaha adalah kondisi yang diupayakan Pemerintah Daerah untuk memberdayakan Industri Kreatif, Koperasi, dan Usaha Kecil secara sinergis melalui penetapan berbagai peraturan perundang-undangan dan kebijakan di berbagai aspek kehidupan ekonomi agar Industri Kreatif, Koperasi, dan Usaha Kecil memperoleh pemihakan, kepastian, kesempatan, perlindungan, dan dukungan berusaha yang seluas-luasnya.
+8. Pengembangan adalah upaya yang dilakukan Pemerintah Daerah, dunia usaha, dan masyarakat untuk memberdayakan Industri Kreatif, Koperasi, dan Usaha Kecil melalui pemberian fasilitas, bimbingan, pendampingan, dan bantuan perkuatan untuk menumbuhkan dan meningkatkan kemampuan dan daya saing Industri Kreatif, Koperasi, dan Usaha Kecil.
+9. Pembiayaan adalah penyediaan dana oleh Pemerintah Daerah, dunia usaha, dan masyarakat melalui bank, koperasi dan lembaga keuangan bukan bank untuk mengembangkan dan memperkuat permodalan Industri Kreatif, Koperasi, dan Usaha Kecil.
+10. Kemitraan adalah kerja sama dalam keterkaitan usaha baik langsung maupun tidak langsung atas dasar prinsip saling memerlukan, mempercayai, memperkuat dan menguntungkan yang melibatkan pelaku Industri Kreatif, Koperasi, dan Usaha Kecil.
+11. Inkubator Bisnis adalah lembaga yang menyediakan layanan penumbuhan wirausaha baru dan perkuatan akses sumber daya kemajuan usaha kepada Usaha Kecil sebagai mitra usaha.
+12. Daerah adalah Daerah Istimewa Yogyakarta.
+13. Pemerintah Daerah DIY yang selanjutnya disebut Pemerintah Daerah adalah unsur penyelenggara pemerintahan yang terdiri atas Gubernur DIY dan perangkat daerah.
+14. Pemerintah Kabupaten/Kota adalah Pemerintah Kabupaten Sleman, Pemerintah Kabupaten Bantul, Pemerintah Kabupaten Kulon Progo, Pemerintah Kabupaten Gunungkidul, dan Pemerintah Kota Yogyakarta.
+15. Gubernur DIY yang selanjutnya disebut Gubernur adalah Kepala Daerah DIY yang karena jabatannya juga berkedudukan sebagai wakil Pemerintah.
