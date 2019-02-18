@@ -1,0 +1,3 @@
+# Pasal 136
+(1) Rancangan Keputusan Pimpinan DPRD ditetapkan menjadi Keputusan Pimpinan DPRD oleh Pimpinan DPRD melalui rapat Pimpinan DPRD dan/atau rapat konsultasi atau rapat gabungan Pimpinan DPRD dengan pimpinan-pimpinan fraksi, setelah mendapatkan masukan dari pimpinan fraksi dalam rapat konsultasi dan/atau Badan Musyawarah dan/atau alat kelengkapan DPRD yang terkait.
+(2) Dalam hal tertentu berdasarkan kesepakatan Pimpinan DPRD, penetapan rancangan Keputusan Pimpinan DPRD menjadi Keputusan Pimpinan DPRD dapat dilakukan tanpa melalui rapat Pimpinan DPRD dan/atau rapat konsultasi atau rapat gabungan Pimpinan DPRD dengan pimpinan-pimpinan fraksi.
