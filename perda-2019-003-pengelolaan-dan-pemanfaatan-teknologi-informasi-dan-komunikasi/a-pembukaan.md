@@ -1,0 +1,22 @@
+# Pembukaan
+GUBERNUR DAERAH ISTIMEWA YOGYAKARTA
+PERATURAN DAERAH DAERAH ISTIMEWA YOGYAKARTA NOMOR 3 TAHUN 2019 TENTANG PENGELOLAAN DAN PEMANFAATAN TEKNOLOGI INFORMASI DAN KOMUNIKASI
+DENGAN RAHMAT TUHAN YANG MAHA ESA
+GUBERNUR DAERAH ISTIMEWA YOGYAKARTA,
+Menimbang: a. bahwa teknologi informasi dan komunikasi merupakan sarana yang sangat penting dalam penyelenggaraan pemerintahan daerah yang transparan, akuntabel, efektif, efisien, dan partisipatif guna memberikan pelayanan publik yang cepat, tepat, dan terjangkau masyarakat;
+b. bahwa penyelenggaraan pemerintahan dan pemberdayaan masyarakat perlu memanfaatkan teknologi informasi guna mendukung peningkatan kualitas pelayanan kepada masyarakat;
+c. bahwa berdasarkan pertimbangan sebagaimana dimaksud dalam huruf a dan huruf b, perlu menetapkan Peraturan Daerah tentang Pengelolaan dan PemanfaatanTeknologi Informasi dan Komunikasi;
+Mengingat: 1. Pasal 18 ayat (6) Undang-Undang Dasar Negara Republik Indonesia Tahun 1945;
+2. Undang-Undang Nomor 3 Tahun 1950 tentang Pembentukan Daerah Istimewa Jogjakarta (Berita Negara Republik Indonesia Tahun 1950 Nomor 3), sebagaimana telah diubah terakhir dengan Undang-Undang Nomor 9 Tahun 1955 tentang Perubahan Undang-Undang Nomor 3 jo. Nomor 19 Tahun 1950 tentang Pembentukan Daerah Istimewa Jogjakarta (Lembaran Negara Republik Indonesia Tahun 1955 Nomor 43, Tambahan Lembaran Negara Republik Indonesia Nomor 827);
+3. Undang-Undang Nomor 12 Tahun 2011 tentang Pembentukan Peraturan Perundang-undangan (Lembaran Negara Republik Indonesia Tahun 2011 Nomor 82, Tambahan Lembaran Negara Republik Indonesia Nomor 5234);
+4. Undang-Undang Nomor 13 Tahun 2012 tentang Keistimewaan Daerah Istimewa Yogyakarta (Lembaran Negara Republik Indonesia Tahun 2012 Nomor 170, Tambahan Lembaran Negara Republik Indonesia Nomor 5339);
+5. Undang-Undang Nomor 23 Tahun 2014 tentang Pemerintahan Daerah (Lembaran Negara Republik Indonesia Tahun 2014 Nomor 244, Tambahan Lembaran Negara Republik Indonesia Nomor 5587) sebagaimana telah diubah terakhir dengan Undang-Undang Nomor 9 Tahun 2015 tentang Perubahan Kedua atas Undang-Undang Nomor 23 Tahun 2014 tentang Pemerintahan Daerah (Lembaran Negara Republik Indonesia Tahun 2015 Nomor 58, Tambahan Lembaran Negara Republik Indonesia Nomor 5679);
+6. Peraturan Pemerintah Nomor 31 Tahun 1950 tentang Berlakunya Undang-Undang Nomor 2 Tahun 1950 tentang Pembentukan Provinsi Jawa Timur, Undang-Undang Nomor 3 Tahun 1950 tentang Pembentukan Daerah Istimewa Yogyakarta, Undang-Undang Nomor 10 Tahun 1950 tentang Pembentukan Provinsi Jawa Tengah, dan Undang-Undang Nomor 11 Tahun 1950 tentang Pembentukan Provinsi Jawa Barat (Berita Negara Republik Indonesia Tahun 1950 Nomor 58);
+7. Peraturan Presiden Nomor 95 Tahun 2018 tentang Sistem Pemerintahan Berbasis Elektronik (Lembaran Negara Republik Indonesia Tahun 2018 Nomor 182);
+8. Peraturan Menteri Dalam Negeri Nomor 80 Tahun 2015 tentang Pembentukan Produk Hukum Daerah (Berita Negara Republik Indonesia Tahun 2015 Nomor 2036) sebagaimana telah diubah dengan Peraturan Menteri Dalam Negeri Nomor 120 Tahun 2018 tentang Perubahan Atas Peraturan Menteri Dalam Negeri Nomor 80 Tahun 2015 Tentang Pembentukan Produk Hukum Daerah (Berita Negara Republik Indonesia Tahun 2018 Nomor 157);
+9. Peraturan Menteri Komunikasi dan Informatika Nomor 13 Tahun 2016 tentang Hasil Pemetaan Urusan Pemerintahan Daerah Di Bidang Komunikasi Dan Informatika (Berita Negara Republik Indonesia Tahun 2016 Nomor 1307);
+Dengan Persetujuan Bersama DEWAN PERWAKILAN RAKYAT DAERAH DAERAH ISTIMEWA YOGYAKARTA dan GUBERNUR DAERAH ISTIMEWA YOGYAKARTA
+MEMUTUSKAN:
+Menetapkan: PERATURAN DAERAH TENTANG PENGELOLAAN DAN PEMANFAATAN TEKNOLOGI INFORMASI DAN KOMUNIKASI.
+BAB I
+KETENTUAN UMUM
