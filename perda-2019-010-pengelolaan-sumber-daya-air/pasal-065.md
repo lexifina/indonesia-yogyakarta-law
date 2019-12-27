@@ -1,0 +1,3 @@
+# Pasal 65
+Pada saat Peraturan Daerah ini mulai berlaku:
+a. Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 6 Tahun 2010 tentang Irigasi (Lembaran Daerah Provinsi Daerah Istimewa Yogyakarta Tahun 2010 Nomor 6, Tambahan Lembaran Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 6); dan b. Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 5 Tahun 2012 tentang Pengelolaan Air Tanah (Lembaran Daerah Provinsi Daerah Istimewa Yogyakarta Tahun 2012 Nomor 5, Lembaran Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 5), dinyatakan tetap berlaku sepanjang tidak bertentangan dengan Peraturan Daerah ini.
