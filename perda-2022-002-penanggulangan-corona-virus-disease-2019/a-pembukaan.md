@@ -1,0 +1,26 @@
+# Pembukaan
+GUBERNUR DAERAH ISTIMEWA YOGYAKARTA
+PERATURAN DAERAH DAERAH ISTIMEWA YOGYAKARTA NOMOR 2 TAHUN 2022 TENTANG PENANGGULANGAN CORONA VIRUS DISEASE 2019
+DENGAN RAHMAT TUHAN YANG MAHA ESA
+GUBERNUR DAERAH ISTIMEWA YOGYAKARTA,
+Menimbang: a. bahwa Corona Virus Disease 2019 di Daerah Istimewa Yogyakarta tidak hanya berdampak pada kesehatan masyarakat tetapi berdampak pula pada berbagai aspek lainnya dalam kehidupan masyarakat sehingga perlu dilakukan upaya penanggulangan yang terpadu;
+b. bahwa Pemerintah Daerah Daerah Istimewa Yogyakarta memiliki tanggung jawab untuk menjamin kesehatan masyarakat Daerah Istimewa Yogyakarta serta upaya pemulihannya di berbagai sektor sebagai dampak dari pandemi Corona Virus Disease 2019;
+c. bahwa ketentuan peraturan perundang-undangan mengenai penanggulangan Corona Virus Disease 2019 di Daerah Istimewa Yogyakarta belum dapat dijadikan landasan hukum yang kuat dan menyeluruh untuk memperkuat upaya dan meningkatkan efektivitas perlindungan kesehatan masyarakat, pelindungan sosial, pemulihan ekonomi dan penegakan hukum;
+d. bahwa berdasarkan pertimbangan sebagaimana dimaksud dalam huruf a, huruf b, dan huruf c, perlu menetapkan Peraturan Daerah tentang Penanggulangan Corona Virus Disease 2019;
+Mengingat: 1. Pasal 18 ayat (6) Undang-Undang Dasar Negara Republik Indonesia Tahun 1945;
+2. Undang-Undang Nomor 3 Tahun 1950 tentang Pembentukan Daerah Istimewa Jogjakarta (Berita Negara Republik Indonesia Tahun 1950 Nomor 3), sebagaimana telah diubah terakhir dengan Undang-Undang Nomor 9 Tahun 1955 tentang Perubahan Undang-Undang Nomor 3 jo. Nomor 19 Tahun 1950 tentang Pembentukan Daerah Istimewa Jogjakarta (Lembaran Negara Republik Indonesia Tahun 1955 Nomor 43, Tambahan Lembaran Negara Republik Indonesia Nomor 827);
+3. Undang-Undang Nomor 12 Tahun 2011 tentang Pembentukan Peraturan Perundang-undangan (Lembaran Negara Republik Indonesia Tahun 2011 Nomor 82, Tambahan Lembaran Negara Republik Indonesia Nomor 5234) sebagaimana telah diubah dengan Undang-Undang Nomor 15 Tahun 2019 tentang Perubahan Atas Undang-Undang Nomor 12 Tahun 2011 tentang Pembentukan Peraturan Perundang-undangan (Lembaran Negara Republik Indonesia Tahun 2019 Nomor 183, Tambahan Lembaran Negara Republik Indonesia Nomor 6398);
+4. Undang-Undang Nomor 13 Tahun 2012 tentang Keistimewaan Daerah Istimewa Yogyakarta (Lembaran Negara Republik Indonesia Tahun 2012 Nomor 170, Tambahan Lembaran Negara Republik Indonesia Nomor 5339);
+5. Undang-Undang Nomor 23 Tahun 2014 tentang Pemerintahan Daerah sebagaimana telah diubah terakhir dengan Undang-Undang Nomor 11 Tahun 2020 tentang Cipta Kerja (Lembaran Negara Republik Indonesia Tahun 2020 Nomor 245, Tambahan Lembaran Negara Republik Indonesia Nomor 6573);
+6. Undang-Undang Nomor 6 Tahun 2018 tentang Kekarantinaan Kesehatan (Lembaran Negara Republik Indonesia Tahun 2018 Nomor 128, Tambahan Lembaran Negara Republik Indonesia Nomor 6236);
+7. Undang-Undang Nomor 2 Tahun 2020 tentang Penetapan Peraturan Pemerintah Pengganti Undang-Undang Nomor 1 Tahun 2020 tentang Kebijakan Keuangan Negara dan Stabilitas Sistem Keuangan untuk Penanganan Pandemi Corona Virus Disease 2019 (COVID-19) dan/ atau dalam rangka Menghadapi Ancaman yang Membahayakan Perekonomian Nasional dan/ atau Stabilitas Sistem Keuangan Menjadi Undang-Undang (Lembaran Negara Republik Indonesia Tahun 2020 Nomor 134, Tambahan Lembaran Negara Republik Indonesia Nomor 6485);
+8. Peraturan Pemerintah Nomor 31 Tahun 1950 tentang Berlakunya Undang-Undang Nomor 2 Tahun 1950 tentang Pembentukan Provinsi Jawa Timur, Undang-Undang Nomor 3 Tahun 1950 tentang Pembentukan Daerah Istimewa Yogyakarta, Undang-Undang Nomor 10 Tahun 1950 tentang Pembentukan Provinsi Jawa Tengah, dan Undang-Undang Nomor 11 Tahun 1950 tentang Pembentukan Provinsi Jawa Barat (Berita Negara Republik Indonesia Tahun 1950 Nomor 58);
+9. Peraturan Pemerintah Nomor 21 Tahun 2020 tentang Pembatasan Sosial Berskala Besar Dalam Rangka Percepatan Penanganan Corona Virus Disease 2019 (COVID-19) (Lembaran Negara Republik Indonesia Tahun 2020 Nomor 91, Tambahan Lembaran Negara Republik Indonesia Nomor 6487);
+10. Peraturan Presiden Nomor 108 Tahun 2020 tentang Perubahan Peraturan Presiden Nomor 82 Tahun 2020 tentang Komite Penanganan Corona Virus Disease 2019 (COVID-19) dan Pemulihan Ekonomi Nasional (Lembaran Negara Republik Indonesia Tahun 2020 Nomor 170);
+11. Peraturan Menteri Dalam Negeri Nomor 80 Tahun 2015 tentang Pembentukan Produk Hukum Daerah (Berita Negara Republik Indonesia Tahun 2015 Nomor 2036), sebagaimana telah diubah dengan Peraturan Menteri Dalam Negeri Nomor 120 Tahun 2018 tentang Perubahan Atas Peraturan Menteri Dalam Negeri Nomor 80 Tahun 2015 tentang Pembentukan Produk Hukum Daerah (Berita Negara Republik Indonesia Tahun 2019 Nomor 157);
+12. Peraturan Menteri Kesehatan Nomor 9 Tahun 2020 tentang Pedoman Pembatasan Sosial Berskala Besar dalam rangka Percepatan Penanganan Corona Virus Disease 2019 (COVID-19) (Berita Negara Republik Indonesia Tahun 2020 Nomor 326);
+Dengan Persetujuan Bersama DEWAN PERWAKILAN RAKYAT DAERAH DAERAH ISTIMEWA YOGYAKARTA dan GUBERNUR DAERAH ISTIMEWA YOGYAKARTA
+MEMUTUSKAN:
+Menetapan: PERATURAN DAERAH TENTANG PENANGGULANGAN CORONA VIRUS DISEASE 2019.
+BAB I
+KETENTUAN UMUM

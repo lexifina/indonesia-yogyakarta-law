@@ -1,0 +1,2 @@
+# Pasal 55
+Setiap pelaku usaha, pimpinan/penanggung jawab perkantoran/tempat kerja/industri, pengelola/penanggung jawab tempat wisata, pengelola/penanggung jawab fasilitas umum yang telah diberikan sanksi administratif sebagaimana dimaksud dalam Pasal 51 namun tetap melakukan pelanggaran, dipidana dengan pidana kurungan paling lama 6 (enam) bulan atau denda paling banyak Rp50.000.000,00 (lima puluh juta rupiah)

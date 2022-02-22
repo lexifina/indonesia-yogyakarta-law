@@ -1,0 +1,5 @@
+# Pasal 19
+(1) Setiap Orang yang telah dinyatakan Terkonfirmasi Covid-19 berkewajiban melakukan Isolasi di Isolasi Terpusat dengan melampirkan hasil pemeriksaan Reverse Transcriptase Polymerase Chain Reaction atau Tes Cepat Molekuler dari fasilitas kesehatan.
+(2) Dalam hal orang yang telah dinyatakan Terkonfirmasi Covid-19 sebagaimana dimaksud pada ayat (1) menolak untuk Isolasi di Isolasi Terpusat maka Isolasi dilakukan secara mandiri dengan ketentuan anggota keluarga lainnya tidak boleh bertempat tinggal dalam satu tempat tinggal yang sama selama Isolasi Mandiri berlangsung.
+(3) Dalam hal anggota keluarga lainnya sebagaimana dimaksud pada ayat (2) menolak untuk bertempat tinggal di tempat tinggal yang berbeda maka seluruh anggota keluarga tersebut harus melakukan Karantina mandiri dalam tempat tinggal tersebut selama Isolasi Mandiri berlangsung.
+(4) Setiap Orang yang melakukan Isolasi Mandiri sebagaimana dimaksud pada ayat (2) dan anggota keluarga yang melakukan Karantina mandiri sebagaimana dimaksud pada ayat (3) berkewajiban melaporkan kondisi kesehatannya melalui layanan informasi kepada Satuan Tugas Covid-19 di lingkungannya dan/atau fasilitas kesehatan.
