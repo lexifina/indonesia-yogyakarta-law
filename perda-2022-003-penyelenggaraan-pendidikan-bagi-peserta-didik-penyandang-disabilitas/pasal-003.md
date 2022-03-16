@@ -1,0 +1,4 @@
+# Pasal 3
+Tujuan pengaturan Penyelenggaraan Pendidikan Bagi Peserta Didik Penyandang Disabilitas, Memiliki Potensi Kecerdasan, Dan/Atau Bakat Istimewa di Daerah:
+a. meningkatkan kualitas dan kuantitas penyelenggaraan pendidikan pada Satuan Pendidikan Khusus dan Satuan Pendidikan Penyelenggara Pendidikan Inklusif;
+b. meningkatkan koordinasi Pemerintah Daerah dengan Pemerintah Daerah Kabupaten/Kota dalam Penyelenggaraan Pendidikan Bagi Peserta Didik Penyandang Disabilitas, Memiliki Potensi Kecerdasan, Dan/Atau Bakat Istimewa pada Satuan Pendidikan Penyelenggara Pendidikan Inklusif pada jenjang pendidikan dasar; dan c. memperkuat peran Pemerintah Daerah, Orang Tua, Organisasi Orang Tua, Dunia Usaha, serta Masyarakat dalam Penyelenggaraan Pendidikan Bagi Peserta Didik Penyandang Disabilitas, Memiliki Potensi Kecerdasan, Dan/Atau Bakat Istimewa.
