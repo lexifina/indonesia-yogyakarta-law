@@ -1,0 +1,3 @@
+# Pasal 38
+(1) Upaya Pelayanan Kesehatan dalam bentuk kegiatan preventif sebagaimana dimaksud dalam Pasal 36 huruf b meliputi upaya pencegahan terhadap suatu masalah kesehatan yang diberikan kepada Penyandang Disabilitas selama hidup dengan menciptakan lingkungan hidup yang sehat dengan menyertakan peran serta Masyarakat.
+(2) Pemerintah Daerah menyediakan pelayanan kesehatan khusus yang dibutuhkan Penyandang Disabilitas, termasuk identifikasi awal dan intervensi yang sesuai, serta pelayanan yang dirancang untuk meminimalkan dan mencegah disabilitas lebih lanjut, termasuk bagi anak-anak dan orang-orang lanjut usia.

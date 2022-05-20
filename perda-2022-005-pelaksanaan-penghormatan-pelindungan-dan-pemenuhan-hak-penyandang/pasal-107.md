@@ -1,0 +1,2 @@
+# Pasal 107
+Pada saat Peraturan Daerah ini mulai berlaku, semua Peraturan Gubernur yang merupakan peraturan pelaksanaan dari Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 4 Tahun 2012 tentang Perlindungan Dan Pemenuhan Hak-Hak Penyandang Disabilitas (Lembaran Daerah Provinsi Daerah Istimewa Yogyakarta Tahun 2012 Nomor 4, Tambahan Lembaran Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 4), dinyatakan masih tetap berlaku sepanjang tidak bertentangan dengan ketentuan dalam Peraturan Daerah ini.
