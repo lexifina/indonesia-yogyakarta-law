@@ -1,0 +1,2 @@
+# Pasal 67
+Pada saat Peraturan Daerah ini mulai berlaku, Peraturan Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 12 Tahun 2010 tentang Penanggulangan Human Immunodefficiency Virus (HIV) Dan Acquired Immuno Defficiency Sindrome (AIDS) (Lembaran Daerah Provinsi Daerah Istimewa Yogyakarta Tahun 2010 Nomor 12, Tambahan Lembaran Daerah Provinsi Daerah Istimewa Yogyakarta Nomor 12), dicabut dan dinyatakan tidak berlaku.
