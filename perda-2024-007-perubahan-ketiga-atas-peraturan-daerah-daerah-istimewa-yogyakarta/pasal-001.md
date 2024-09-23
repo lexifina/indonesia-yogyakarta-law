@@ -1,0 +1,27 @@
+# Pasal I
+Ketentuan Pasal 5 dalam Peraturan Daerah Daerah Istimewa Yogyakarta Nomor 5 Tahun 2013 tentang Penyertaan Modal Daerah pada Badan Usaha Milik Daerah dan Perseroan Terbatas Asuransi Bangun Askrida (Lembaran Daerah Daerah Istimewa Yogyakarta Tahun 2013 Nomor 5, Tambahan Lembaran Daerah Daerah Istimewa Yogyakarta Nomor 5) sebagaimana telah beberapa kali diubah terakhir dengan Peraturan Daerah Daerah Istimewa Yogyakarta Nomor 14 Tahun 2018 tentang Perubahan Kedua Atas Peraturan Daerah Daerah Istimewa Yogyakarta Nomor 5 Tahun 2013 tentang Penyertaan Modal Daerah pada Badan Usaha Milik Daerah dan Perseroan Terbatas Asuransi Bangun Askrida (Lembaran Daerah Daerah Istimewa Yogyakarta Tahun 2018 Nomor 15, Tambahan Lembaran Daerah Daerah Istimewa Yogyakarta Nomor 15) diubah sehingga berbunyi sebagai berikut:
+Dokumen ini ditandatangani secara elektronik menggunakan sertifikat elektronik yang diterbitkan oleh Balai Sertikasi Elektronik (BSrE) Badan Siber dan Sandi Negara
+Pasal 5
+(1) Nilai penyertaan modal sebagaimana dimaksud dalam Pasal 4 sebesar Rp4.080.000.000.000,00 (empat triliun delapan puluh miliar rupiah) berasal dari penyertaan modal semula sebesar Rp2.040.000.000.000,00 (dua triliun empat puluh miliar rupiah) menjadi Rp Rp4.080.000.000.000,00 (empat triliun delapan puluh miliar rupiah) sehingga terdapat penambahan sebesar Rp2.040.000.000.000,00 (dua triliun empat puluh miliar rupiah).
+(2) Nilai penyertaan modal sebagaimana dimaksud pada ayat (1) paling sedikit 51% (lima puluh satu persen) dari modal dasar PT Bank BPD DIY sebesar Rp8.000.000.000.000,00 (delapan triliun rupiah) yaitu modal dasar semula Rp4.000.000.000.000,00 (empat triliun rupiah) menjadi Rp8.000.000.000.000,00 (delapan triliun rupiah).
+(3) Pemenuhan nilai penyertaan modal sebesar 49% (empat puluh sembilan persen) dapat dipenuhi oleh Pemerintah Kabupaten Sleman, Pemerintah Kabupaten Bantul, Pemerintah Kabupaten Kulon Progo, Pemerintah Kabupaten Gunungkidul, Pemerintah Kota Yogyakarta dan mitra strategis yang ditetapkan dalam Rapat Umum Pemegang Saham.
+(4) Penyertaan modal sebagaimana dimaksud pada ayat (1) sampai dengan Tahun Anggaran 2023 telah disetorkan sebesar Rp1.381.175.000.000,00 (satu triliun tiga ratus delapan puluh satu miliar seratus tujuh puluh lima juta rupiah).
+(5) Penyetoran modal sebagaimana dimaksud pada ayat (4) merupakan pemenuhan terhadap kewajiban penyertaan modal sebelum perubahan sebesar Rp2.040.000.000.000,00 (dua triliun empat puluh miliar rupiah).
+Dokumen ini ditandatangani secara elektronik menggunakan sertifikat elektronik yang diterbitkan oleh Balai Sertikasi Elektronik (BSrE) Badan Siber dan Sandi Negara (6) Pemenuhan atas kekurangan penyetoran modal sebagaimana dimaksud pada ayat (4) yaitu sebesar Rp658.825.000.000,00 (enam ratus lima puluh delapan miliar delapan ratus dua puluh lima juta rupiah) paling lambat dilakukan pada Tahun Anggaran 2025.
+(7) Tahapan pemenuhan penambahan penyertaan modal Pemerintah Daerah DIY sebagaimana dimaksud pada ayat (1) dilaksanakan dengan rincian sebagai berikut:
+a. Tahun Anggaran 2028 sebesar Rp124.206.000.000,00 (seratus dua puluh empat miliar dua ratus enam juta rupiah);
+b. Tahun Anggaran 2029 sebesar Rp86.568.000.000,00 (delapan puluh enam miliar lima ratus enam puluh delapan juta rupiah);
+c. Tahun Anggaran 2030 sebesar Rp90.031.000.000,00 (sembilan puluh miliar tiga puluh satu juta rupiah);
+d. Tahun Anggaran 2031 sebesar Rp93.632.000.000,00 (sembilan puluh tiga miliar enam ratus tiga puluh dua juta rupiah);
+e. Tahun Anggaran 2032 sebesar Rp97.378.000.000,00 (sembilan puluh tujuh miliar tiga ratus tujuh puluh delapan juta rupiah);
+f. Tahun Anggaran 2033 sebesar Rp101.273.000.000,00 (seratus satu miliar dua ratus tujuh puluh tiga juta rupiah);
+g. Tahun Anggaran 2034 sebesar Rp112.019.000.000,00 (seratus dua belas miliar sembilan belas juta rupiah);
+h. Tahun Anggaran 2035 sebesar Rp137.255.000.000,00 (seratus tiga puluh tujuh miliar dua ratus lima puluh lima juta rupiah);
+i. Tahun Anggaran 2036 sebesar Rp144.118.000.000,00 (seratus empat puluh empat miliar seratus delapan belas juta rupiah);
+Dokumen ini ditandatangani secara elektronik menggunakan sertifikat elektronik yang diterbitkan oleh Balai Sertikasi Elektronik (BSrE) Badan Siber dan Sandi Negara j. Tahun Anggaran 2037 sebesar Rp151.324.000.000,00 (seratus lima puluh satu miliar tiga ratus dua puluh empat juta rupiah);
+k. Tahun Anggaran 2038 sebesar Rp151.398.000.000,00 (seratus lima puluh satu miliar tiga ratus sembilan puluh delapan juta rupiah);
+l. Tahun Anggaran 2039 sebesar Rp199.752.000.000,00 (seratus sembilan puluh sembilan miliar tujuh ratus lima puluh dua juta rupiah);
+m. Tahun Anggaran 2040 sebesar Rp211.737.000.000,00 (dua ratus sebelas miliar tujuh ratus tiga puluh tujuh juta rupiah);
+n. Tahun Anggaran 2041 sebesar Rp163.573.000.000,00 (seratus enam puluh tiga miliar lima ratus tujuh puluh tiga juta rupiah); dan o. Tahun Anggaran 2042 sebesar Rp175.736.000.000,00 (seratus tujuh puluh lima miliar tujuh ratus tiga puluh enam juta rupiah).
+(8) Realisasi penyertaan modal sebagaimana dimaksud pada ayat (7) memperhitungkan kondisi keuangan Daerah dan/atau dividen yang disetorkan pada tahun anggaran berkenaan.
+(9) Dalam hal penambahan Penyertaan Modal pada tahun berkenaan tidak sesuai dengan rincian sebagaimana dimaksud pada ayat (7), maka penyetoran sisa penambahan Penyertaan Modal diakumulasi pada tahun anggaran berikutnya.
