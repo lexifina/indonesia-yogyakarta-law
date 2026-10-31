@@ -1,0 +1,8 @@
+{
+  "path": "id-yo",
+  "code": "ID-YO",
+  "name": "Yogyakarta (Indonesia)",
+  "level": "country",
+  "repo": "https://github.com/lexifina/indonesia-yogyakarta-law",
+  "build": "built: Peraturan Daerah (Perda) and Peraturan Daerah Istimewa (Perdais) of Daerah Istimewa Yogyakarta as enacted, Indonesian text, from JDIH Daerah Istimewa Yogyakarta (Biro Hukum Sekretariat Daerah DIY)"
+}
