@@ -1,5 +1,7 @@
 # Yogyakarta (Indonesia): law history in git
 
+Part of [lexifina/global-law](https://github.com/lexifina/global-law), one git history for every country's law: this is the law of Yogyakarta, Indonesia, which global-law reads at `indonesia/yogyakarta/acts/`.
+
 The Peraturan Daerah (Perda) and Peraturan Daerah Istimewa (Perdais) of Daerah Istimewa Yogyakarta, Indonesia, as a git history: one folder per Perda, one file per Pasal (article), one paragraph per line, so `git blame`, `git log` and `git diff` work line by line. The text is the Indonesian text of each Perda as enacted, from the copy (salinan) published by JDIH Daerah Istimewa Yogyakarta (Biro Hukum Sekretariat Daerah DIY).
 
 It follows the shared design of [lexifina/global-law](https://github.com/lexifina/global-law).
